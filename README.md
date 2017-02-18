@@ -1,3 +1,2 @@
 # słońce
-![kwiat](http://wrzutka.pl/files/walls/aab88c15/x.jpg)
-
+![słoneczko]http://clipart-library.com/clipart/c1133164.htm
